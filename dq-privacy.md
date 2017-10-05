@@ -36,10 +36,10 @@ We may share or sell information with third parties for marketing or other purpo
 
 # Your acceptance of these terms
 
-By using this Site, you signify your acceptance of this policy. If you do not agree to this policy, please do not use our Site. Your continued use of the Site following the posting of changes to this policy will be deemed your acceptance of those changes. This privacy policy was built with the PrivacyPolicies.com generator.
+By using this Site, you signify your acceptance of this policy. If you do not agree to this policy, please do not use our Site. Your continued use of the Site following the posting of changes to this policy will be deemed your acceptance of those changes.
 
 # Contacting us
 
-If you have any questions about this Privacy Policy, the practices of this site, or your dealings with this site, please contact us.
+If you have any questions about this Privacy Policy, the practices of this site, or your dealings with this site, please contact us at *admin@d-q.co*
 
 **This document was last updated on October 04, 2017
