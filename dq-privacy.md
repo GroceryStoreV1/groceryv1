@@ -1,3 +1,5 @@
+## Privacy Policy
+
 This Privacy Policy governs the manner in which **DQ** collects, uses, maintains and discloses information collected from users (each, a "User") of the **http://www.d-q.co/** website ("Site").
 
 ### Personal identification information
