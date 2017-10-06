@@ -44,4 +44,4 @@ By using this Site, you signify your acceptance of this policy. If you do not ag
 
 If you have any questions about this Privacy Policy, the practices of this site, or your dealings with this site, please contact us at *admin@d-q.co*
 
-**This document was last updated on October 04, 2017
+**This document was last updated on October 04, 2017**
